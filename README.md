@@ -1,1 +1,1 @@
-# temp-blog4
+Sorry - this model is unable to respond to this request.
